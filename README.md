@@ -1,1 +1,1 @@
-https://VitaGldk.github.io/rsschool-cv/cv
+https://VitaGldk.github.io/rsschool-cv/
